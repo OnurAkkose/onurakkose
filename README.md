@@ -33,8 +33,8 @@ Software Engineer
 
 ## 🔗 Let's Connect!
 - [LinkedIn](https://www.linkedin.com/in/onurakkose/)
-- [Gmail](onur251akkose@gmail.com)
 - [Medium](https://onurakkose.medium.com/)
+- onur251akkose@gmail.com
 
 
 
